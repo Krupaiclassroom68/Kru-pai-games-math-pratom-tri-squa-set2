@@ -1,0 +1,1 @@
+# Kru-pai-games-math-pratom-tri-squa-set2
